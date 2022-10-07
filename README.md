@@ -1,0 +1,5 @@
+- 👋 oi eu sou Nah.
+- 👀 eu estou enteressada em aprender novas coisas.
+- 🌱 eu estou aprendendo html e css
+- 💞️ estou preocurando aprender novos conteúdos
+- 📫 para entrar em contato mande um gmail:@naili.araujo@escola.pr.gov.br ou @snailisantos 
